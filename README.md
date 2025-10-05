@@ -71,7 +71,7 @@
   </div>
 
   <p>I’ve been asked nonstop to create this and it’s finally happening.</p>
-  <p>Inside <strong>Travel Queen’s Automate In Network Marketing University</strong>, I’ll share the exact systems I used to build a multi-six-figure network marketing business, retire my husband early, homeschool my kids, and grow a team of thousands—all with <strong>automation that duplicates</strong>.</p>
+  <p>Inside <strong>Tavishi's Automate In Network Marketing University</strong>, I’ll share the exact systems I used to build a multi-six-figure network marketing business, retire my husband early, homeschool my kids, and grow a team of thousands—all with <strong>automation that duplicates</strong>.</p>
 
   <h2>You'll Learn How To:</h2>
   <ul>
